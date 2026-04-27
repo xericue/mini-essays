@@ -22,8 +22,6 @@ outfit itself speaks as opposed to a traditional category that i want to convey.
 “my only conclusion about my gender expression is just that i strive for what i personally find
 fulfilling no matter the perceived image”
 
-3/6/25
-conclusion about gender identity: Yeah I’m just `xericue` man whatever yall want
-
+a quote from a beloved friend of mine:
 “i dont feel detached from the gender binary but i also dont gender traits or gender things to me. i
 feel like a guy but there is More”
