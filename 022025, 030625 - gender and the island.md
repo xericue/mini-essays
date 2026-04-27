@@ -1,4 +1,5 @@
 *How do you feel about your birth gender?*
+
 i feel good about my birth gender; i havent really questioned it until now. i dont really see a
 reason to change it. like i feel like my personality just aligns with... `xericue`. it wouldnt really have
 mattered if i was born a girl or guy? i wouldve found strength either way - however, i do love
@@ -8,20 +9,25 @@ who is straight forward - i like good people. i feel good about my birth gender 
 wrong or weird to me.
 
 3/6/25
+
 it’s more so that i’ve accepted it. would i be happier if i were presenting myself like a woman? i
 don’t think i’d be more happy or more sad. i don’t really resonate or like the tropes that belong to
 either group like “girl gossip” or sports talk, but its never gonna be about gender.
 
 *What gender do you wish people saw you as?*
+
 i wish people saw me as `xericue`.
 
 *How would you like to express your gender?*
+
 i enjoy fashion; but, whether or not my outfits are on me or a girl version of myself, i think that the 
 outfit itself speaks as opposed to a traditional category that i want to convey.
+
 
 “my only conclusion about my gender expression is just that i strive for what i personally find
 fulfilling no matter the perceived image”
 
 a quote from a beloved friend of mine:
+
 “i dont feel detached from the gender binary but i also dont gender traits or gender things to me. i
 feel like a guy but there is More”
